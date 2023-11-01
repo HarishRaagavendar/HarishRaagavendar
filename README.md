@@ -1,5 +1,5 @@
 ## 💫 About Me:
-## 🚀Data Aspirant📉🚩
+🚀Data Aspirant📉🚩
 
 
 ## 🌐 Socials:
